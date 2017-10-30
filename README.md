@@ -1,1 +1,0 @@
-# ridhorizky.github.io
